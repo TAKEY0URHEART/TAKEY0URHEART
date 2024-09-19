@@ -1,11 +1,11 @@
 <p align="left">
- $\color{#939ED7}{\textbf{“No matter how much labor upon labor I endure, I can't seem to go back. Not in ten years, let alone ten seconds…”}}$ <br/>
+ $\color{#939ED7}{\textbf{“Other lesser painters are such mediocrities,”}}$ <br/>
   </p>
   
 ![](https://files.catbox.moe/rdzsh4.png)
   
   <p align="right">   
-$\color{#C0C7EA}{\textbf{ “The return journey is always so far and so… unforgiving.?”}}$
+$\color{#C0C7EA}{\textbf{ “they have no way to recognize the beauty that lies in ugliness.”}}$
 </p>
 
 <p align="center">
