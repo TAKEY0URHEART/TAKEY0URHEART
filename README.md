@@ -2,7 +2,7 @@
  $\color{#939ED7}{\textbf{“Other lesser painters are such mediocrities,”}}$ <br/>
   </p>
   
-![](https://files.catbox.moe/rdzsh4.png)
+!["by arere_(k1m6wv) on danbooru"]([https://files.catbox.moe/rdzsh4.png](https://files.catbox.moe/n7s75g.jpg))
   
   <p align="right">   
 $\color{#C0C7EA}{\textbf{ “they have no way to recognize the beauty that lies in ugliness.”}}$
