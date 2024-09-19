@@ -38,7 +38,7 @@ $\color{#f2a2a1}{\textbf{ “they have no way to recognize the beauty that lies 
 </p>
 
 <p align="center">
- $\color{#f2a2a1}{\textbf{<3}}$ <br/>
+ $\color{#f2a2a1}{\textbf{all art by arere(k1m6wv) on danbooru}}$ <br/>
   </p>
 
 
