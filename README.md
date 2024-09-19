@@ -11,7 +11,7 @@ $\color{#BC9082}{\textbf{ “they have no way to recognize the beauty that lies 
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/11oh5m.png" data-canonical-src="(https://files.catbox.moe/11oh5m.png)" width="500" height="70"
+<img src="https://files.catbox.moe/n7s75g.jpg" data-canonical-src="(https://files.catbox.moe/n7s75g.jpg)" width="500" height="70"
 </p>
 
 <p align="center">
