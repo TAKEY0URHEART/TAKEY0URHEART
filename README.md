@@ -42,8 +42,8 @@ $\color{#f2a2a1}{\textbf{ “they have no way to recognize the beauty that lies 
   </p>
 
 
-https://github.com/user-attachments/assets/93443650-2c50-4dd1-a9d2-f3425ed4e5a5
 
+https://github.com/user-attachments/assets/65cd5a43-d91c-41c3-ae8c-36dd0e4172d0
 
 
 
