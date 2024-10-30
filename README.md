@@ -31,13 +31,6 @@ $\color{#6a554a}{\textbf{ “That we must wait for the right moment.”}}$
  $\color{#6a554a}{\textbf{HONESTLY SHOUTOUT TO THE ENTIRE PROJMOON PONYTOWN DISC SERVER YALL R AWESOME ILY ALL!!}}$ <br/>
   </p>
 ㅤ 
-<p align="center">
-<img src="https://files.catbox.moe/usf28g.webp" data-canonical-src="(https://files.catbox.moe/usf28g.webp)"width="300" height="300"
-</p>
-<p align="center">
- </p>
-
-
 
 
 https://github.com/user-attachments/assets/111d2868-0a0d-4baa-ad34-ebdf85d7f459
