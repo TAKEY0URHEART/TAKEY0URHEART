@@ -35,5 +35,6 @@ $\color{#6a554a}{\textbf{ “That we must wait for the right moment.”}}$
 https://github.com/user-attachments/assets/690de714-d3b0-449f-ad9d-a17a6a2a5e95
 
 
+![Screenshot 2024-12-01 215138](https://github.com/user-attachments/assets/4ece6562-7f43-4061-9600-13f486a5b72c)
 
 
