@@ -29,7 +29,6 @@ $\color{#6a554a}{\textbf{ “That we must wait for the right moment.”}}$
  $\color{#6a554a}{\textbf{SHOUTOUT TO OOMFIES:}}$ <br/>
  $\color{#352930}{\textbf{Don, Halo, Yue, Snom, Kali, Frei, Wisp, Kay, Aseah, Kane}}$ <br/>
  $\color{#6a554a}{\textbf{HONESTLY SHOUTOUT TO THE ENTIRE PROJMOON PONYTOWN DISC SERVER YALL R AWESOME ILY ALL!!}}$ <br/>
-  $\color{#352930}{\textbf{RENTRY WILL BE ADDED SOON I SWEAR}}$ <br/>
   </p>
 ㅤ 
 
