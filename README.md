@@ -13,7 +13,7 @@ $\color{#6a554a}{\textbf{ “That we must wait for the right moment.”}}$
 <img src="https://files.catbox.moe/j93jtx.png" data-canonical-src="(https://files.catbox.moe/j93jtx.png)"
 </p>
 <p align="center">
- $\color{#352930}{\textbf{Hello! My name is Emil!! I also go by a few other names, u can check my rentry!}}$ <br/>
+ $\color{#352930}{\textbf{Hello! My name is Emil or Vi !! I also go by a few other names!}}$ <br/>
  $\color{#6a554a}{\textbf{usually sat w oomfies, feel free to interact!!}}$ <br/>
  $\color{#352930}{\textbf{Autism + Social anxiety, 16 y/o, I can be awkward at first }}$ <br/>
  $\color{#6a554a}{\textbf{I LOVE PROJECT MOON!! int w me if u do too!! I love making friends :D}}$ <br/>
@@ -27,8 +27,9 @@ $\color{#6a554a}{\textbf{ “That we must wait for the right moment.”}}$
 
 <p align="center">
  $\color{#6a554a}{\textbf{SHOUTOUT TO OOMFIES:}}$ <br/>
- $\color{#6a554a}{\textbf{Don, Halo, Yue, Snom, Kali, Frei, Wisp, Kay, Aseah, Kane}}$ <br/>
+ $\color{#352930}{\textbf{Don, Halo, Yue, Snom, Kali, Frei, Wisp, Kay, Aseah, Kane}}$ <br/>
  $\color{#6a554a}{\textbf{HONESTLY SHOUTOUT TO THE ENTIRE PROJMOON PONYTOWN DISC SERVER YALL R AWESOME ILY ALL!!}}$ <br/>
+  $\color{#352930}{\textbf{RENTRY WILL BE ADDED SOON I SWEAR}}$ <br/>
   </p>
 ㅤ 
 
