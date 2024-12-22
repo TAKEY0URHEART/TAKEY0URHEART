@@ -30,3 +30,13 @@ $\color{#6d2019}{\textbf{ “Strange that one minor event, one small action, can
  $\color{#6d2019}{\textbf{Don, Halo, Yue, Snom, Kali, Frei, Wisp, Kay, Aseah, Kane, Kiwi}}$ <br/>
  $\color{#7e4220}{\textbf{HONESTLY SHOUTOUT TO THE ENTIRE PROJMOON PONYTOWN DISC SERVER YALL R AWESOME ILY ALL!!}}$ <br/>
   </p>
+
+<p align="center">
+  <img src="https://files.catbox.moe/irmji0.jpg" data-canonical-src="(https://files.catbox.moe/irmji0.jpg)"
+   </p>
+ <p align="center">
+  <img src="https://files.catbox.moe/lp4csd.gif" data-canonical-src="(https://files.catbox.moe/lp4csd.gif)"
+   <p align="center">
+   </p>
+  <img src="https://files.catbox.moe/8xwyv7.png" data-canonical-src="(https://files.catbox.moe/8xwyv7.png)"
+  </p>
